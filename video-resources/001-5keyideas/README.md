@@ -43,7 +43,7 @@ An Excel spreadsheet (001-10x-in-10-examples.xlsx) was created for the graphic s
 
 ##### Hashtags
 
-\#long-term-investing #value-investing #10x-investing, #strategic-investing #investing
+\#longterminvesting #valueinvesting #10xinvesting, #strategicinvesting #investing
 
 
 
